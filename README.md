@@ -1,1 +1,3 @@
 # JunctionAsis2023_jalNANnom_directions
+
+https://www.notion.so/b51b7124fc1e4341872198af258e6d01?v=4a1afa8bbebf46d0a4ee49b4df4843c6&p=4c6870e0fcc34d90a1c103a3502cefa2&pm=s
